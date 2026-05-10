@@ -2,11 +2,12 @@
  :                      [Ata.Book](https://thecresterpoetry.atabook.org/)
 
 <p align="center"><img src="https://file.garden/af8Midn7Ry9lYjt9/Untitled810_20260509181959.png">
- 
+   ⌯ᵔ ⩊ ᵔ⌯
 <p align="center">Poetry/Crester/Cupid , Prefer Crester more but it is fine to use other name. ︶︶︶
 <div align="left">
 
- <p align="left"><img src="https://file.garden/af8Midn7Ry9lYjt9/Untitled811_20260510120741.png">
+ <p alighn="left"><h2>"BYI"</h2>
+ <p alighn="center">DNI : 
       
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
