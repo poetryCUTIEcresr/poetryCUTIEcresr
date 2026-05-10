@@ -23,7 +23,11 @@
 
 
 <p alighn="right"><h2>"INFO"</h2>
-<p alighn="center"><img src="https://file.garden/aZOYIVhL62o8DuFi/github%20stuff/tumblr_ff69fb8e56318418f2ee1065d0a6bed0_068fca57_75.webp">Low temper / get annoyed easily. please use tonetags (T_T)...
+<p alighn="center"><img src="https://file.garden/aZOYIVhL62o8DuFi/github%20stuff/tumblr_ff69fb8e56318418f2ee1065d0a6bed0_068fca57_75.webp">Low temper / get annoyed easily.
+ 
+ please use tonetags
+ 
+ I can be sensitive most of the times
       
 <p alighn="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
