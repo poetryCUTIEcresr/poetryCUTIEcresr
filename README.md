@@ -4,7 +4,9 @@
 <p align="center"><img src="https://file.garden/af8Midn7Ry9lYjt9/Untitled810_20260509181959.png">
    ⌯ᵔ ⩊ ᵔ⌯
 <p align="center">Poetry/Crester/Cupid , Prefer Crester more but it is fine to use other name. ︶︶︶
-<div align="left">
+<div align="left">𝄞ྀ ֹ He / Him ︶
+
+<p align="center"><img src="https://file.garden/af8Midn7Ry9lYjt9/Untitled811_20260510121041.png">
 
  <p alighn="left"><h2>"DNI"</h2>
  
@@ -25,4 +27,4 @@
   </a>
 </p>
 
-<p align="center"><img src="https://file.garden/af8Midn7Ry9lYjt9/Untitled811_20260510121041.png">
+
