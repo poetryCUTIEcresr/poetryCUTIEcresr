@@ -11,9 +11,9 @@
  <p alighn="left"><h2>"DNI"</h2>
  
   <p alighn="center">: basic dni criteria
-
   
-<p alighn="center">racist
+  
+<p alighn="center"><img src="https://file.garden/aZOYIVhL62o8DuFi/github%20stuff/tumblr_ff69fb8e56318418f2ee1065d0a6bed0_068fca57_75.webp">racist
   
   homophobic , 
 
