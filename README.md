@@ -19,9 +19,13 @@
 
   darkshippers ,
   
-  etc etc 
+  etc etc.
+
+
+<p alighn="right"><h2>"INFO"</h2>
+<p alighn="center"><img src="https://file.garden/aZOYIVhL62o8DuFi/github%20stuff/tumblr_ff69fb8e56318418f2ee1065d0a6bed0_068fca57_75.webp">Low temper / get annoyed easily. please use tonetags (T_T)...
       
-<p align="center">
+<p alighn="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31o3kipbmfoj4774pq2g6y6ufmj4&cover_image=true&theme=natemoo-re&show_offline=false&background_color=e0d3d3&interchange=false&profanity=false&bar_color=28598a&bar_color_cover=false">
   </a>
