@@ -6,8 +6,18 @@
 <p align="center">Poetry/Crester/Cupid , Prefer Crester more but it is fine to use other name. ︶︶︶
 <div align="left">
 
- <p alighn="left"><h2>"BYI"</h2>
- <p alighn="center">DNI : 
+ <p alighn="left"><h2>"DNI"</h2>
+ 
+  <p alighn="center">: basic dni criteria
+
+  
+<p alighn="center">racist
+  
+  homophobic , 
+
+  darkshippers ,
+  
+  etc etc 
       
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
