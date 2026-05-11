@@ -4,7 +4,7 @@
 
 <p align="center"><img src="https://file.garden/af8Midn7Ry9lYjt9/Untitled812_20260510171537.png">
 
-   ⌯ᵔ ⩊ ᵔ⌯
+<p align="center">$\color{#B5C6C6}⌯ᵔ⩊ᵔ⌯$<br>
 
 🦢[straw.page](https://poetrybreadcrest.straw.page/)
    
@@ -12,10 +12,10 @@
 🦢
 
  : 🦢 [Pronouncs.cc](https://pronouns.cc/@LIGHTLYSOD)
-<p align="center">Poetry/Crester/Cupid/Clovy , Prefer Clovy more but it is fine to use other name. ︶︶︶
+<p align="center">$\color{#B5C6C6}Poetry/Crester/Cupid/Clovy$ <br> , Prefer Clovy more but it is fine to use other name. ︶︶︶
 
  
-<p align="left">He / Him   (⁠ ⁠ꈍ⁠ᴗ⁠ꈍ⁠) 
+<p align="left">He / Him   $\color{#5E1D20}(ꈍ⁠ᴗ⁠ꈍ⁠)$ <br>  
   
  <p alighn="center">NON-sharing Byakuya Togami yumeshipper
 
@@ -25,7 +25,7 @@
 <p align="center"><img src="https://file.garden/af8Midn7Ry9lYjt9/Untitled810_20260509181959.png">
 
 
- <p alighn="left"><h2>"DNI"</h2>
+ <p alighn="left"><h2>$\color{#5E1D20}"DNI"$ <br></h2>
  
   <p alighn="center">: basic dni criteria
   
@@ -39,7 +39,7 @@
  ᛝ etc etc.
 
 
-<p alighn="right"><h2>"INFO"</h2>
+<p alighn="right"><h2>$\color{#5E1D20}"INFO"$ <br></h2>
 <p alighn="center"><img src="https://file.garden/aZOYIVhL62o8DuFi/github%20stuff/tumblr_ff69fb8e56318418f2ee1065d0a6bed0_068fca57_75.webp">Low temper / get annoyed easily.
  
 ༎ please use tonetags
