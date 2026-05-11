@@ -8,7 +8,7 @@
 [straw.page](https://poetrybreadcrest.straw.page/)
  :                      [Ata.Book](https://thecresterpoetry.atabook.org/)
  :    [Pronouncs.cc](https://pronouns.cc/@LIGHTLYSOD)
-<p align="center">Poetry/Crester/Cupid/Clovy , Prefer Crester more but it is fine to use other name. ︶︶︶
+<p align="center">Poetry/Crester/Cupid/Clovy , Prefer Clovy more but it is fine to use other name. ︶︶︶
 
  
 <div align="left">He / Him   (⁠ ⁠ꈍ⁠ᴗ⁠ꈍ⁠) NON-sharing Byakuya Togami yumeshipper , doubles IWC
@@ -38,7 +38,8 @@
  I can be sensitive most of the times
 
  I get upset REALLY easily
-      
+
+ If i make a joke that makes you uncomfortable do NOT hesitate to tell me you're not comfortable with it.
 <p alighn="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31o3kipbmfoj4774pq2g6y6ufmj4&cover_image=true&theme=natemoo-re&show_offline=false&background_color=e0d3d3&interchange=false&profanity=false&bar_color=28598a&bar_color_cover=false">
