@@ -36,6 +36,8 @@
  please use tonetags
  
  I can be sensitive most of the times
+
+ I get upset REALLY easily
       
 <p alighn="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
