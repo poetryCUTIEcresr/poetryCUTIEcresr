@@ -15,10 +15,14 @@
 <p align="center">Poetry/Crester/Cupid/Clovy , Prefer Clovy more but it is fine to use other name. ︶︶︶
 
  
-<div align="left">He / Him   (⁠ ⁠ꈍ⁠ᴗ⁠ꈍ⁠) NON-sharing Byakuya Togami yumeshipper , doubles IWC
+<p align="left">He / Him   (⁠ ⁠ꈍ⁠ᴗ⁠ꈍ⁠) 
+  
+  <p alighn="center">NON-sharing Byakuya Togami yumeshipper , doubles IWC
+
 
 
 <p align="center"><img src="https://file.garden/af8Midn7Ry9lYjt9/Untitled810_20260509181959.png">
+
 
  <p alighn="left"><h2>"DNI"</h2>
  
