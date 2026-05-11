@@ -7,7 +7,7 @@
    ⌯ᵔ ⩊ ᵔ⌯
 [straw.page](https://poetrybreadcrest.straw.page/)
  :                      [Ata.Book](https://thecresterpoetry.atabook.org/)
-   
+ :    [Pronouncs.cc](https://pronouns.cc/@LIGHTLYSOD)
 <p align="center">Poetry/Crester/Cupid/Clovy , Prefer Crester more but it is fine to use other name. ︶︶︶
 
  
