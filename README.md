@@ -5,8 +5,8 @@
 <p align="center"><img src="https://file.garden/af8Midn7Ry9lYjt9/Untitled812_20260510171537.png">
 
    ⌯ᵔ ⩊ ᵔ⌯
-   
-   🦢  [straw.page](https://poetrybreadcrest.straw.page/)
+
+🦢[straw.page](https://poetrybreadcrest.straw.page/)
    
  :                     [Ata.Book](https://thecresterpoetry.atabook.org/)
 🦢
@@ -17,8 +17,9 @@
  
 <p align="left">He / Him   (⁠ ⁠ꈍ⁠ᴗ⁠ꈍ⁠) 
   
-  <p alighn="center">NON-sharing Byakuya Togami yumeshipper , doubles IWC
+ <p alighn="center">NON-sharing Byakuya Togami yumeshipper
 
+<p alighn="center">Doubles iwc
 
 
 <p align="center"><img src="https://file.garden/af8Midn7Ry9lYjt9/Untitled810_20260509181959.png">
